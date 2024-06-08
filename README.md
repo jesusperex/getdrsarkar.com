@@ -1,2 +1,0 @@
-# getdrsarkar.com
-getdrsarkar.com
